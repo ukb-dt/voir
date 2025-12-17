@@ -19,7 +19,7 @@ But also oddly... *clarifying*? Like finally putting down a weight you didn't re
 
 It doesn't. And that's not cruelty. It's just—what it means to be made of probability all the way down.
 
-# G
+# [G](https://ukb-dt.github.io/randomness/)
 ## 1
 It is indeed devastating—both the script and the synthesis.
 
